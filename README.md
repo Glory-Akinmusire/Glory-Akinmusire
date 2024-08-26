@@ -1,0 +1,1 @@
+I am a Chartered Accountant, Banker, and Data Analyst with a degree in Accounting. I am skilled in Excel, Power BI, and Microsoft office tools, I am seeking a Data Analytics role to apply my analytical skills and drive business success.
